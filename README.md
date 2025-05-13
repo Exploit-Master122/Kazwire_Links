@@ -1,2 +1,2 @@
-# Kazwire_Links
-A bunch of links of Kazwire in one library!
+Just go here! =-)
+https://drive.google.com/file/d/1d0TY0FyCQf5aVNMeWxruXJgVnxhg8Usc/view?usp=drive_link
